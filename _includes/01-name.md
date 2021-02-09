@@ -1,3 +1,3 @@
-# Ameen Ali
+# Hi, I am Ameen Ali!
 
-### This is my portfolio.
+### I like making things and meeting new people.
